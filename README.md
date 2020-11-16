@@ -1,1 +1,1 @@
-https://naavya.github.io/trex-/.
+https://tripti03.github.io/navTrex/
